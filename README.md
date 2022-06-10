@@ -1,0 +1,13 @@
+# woonpunt-terrorisme-thuisbezorgd
+
+https://nl.wikipedia.org/wiki/Klopboormachine
+
+https://en.wikipedia.org/wiki/Torture
+
+https://nl.wikipedia.org/wiki/Diefstal
+
+https://en.wikipedia.org/wiki/Parcel_post
+
+
+
+elke dag op de herculeshof daalhof
